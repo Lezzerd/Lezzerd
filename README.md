@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lezzerd
+- 👀 I’m not interesting at coding, but too much like games
+- 🌱 I’m currently learning how to use spoon
+- 💞️ I’m looking to collaborate on my bed with hot girls
+- 📫 How to reach me - discord what i forgor💀
